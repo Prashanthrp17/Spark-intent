@@ -5,3 +5,4 @@ hi anna iniki cls la andha home page logo lam create pandredhuku romba think pan
 hi anna software la pandredhu nala irudnhuchi anna enga vitla system iruku but metwork illa naa mobile hotspot use pani try panj pakuren anna illana clg la use pane try pandren anna thnks anna for teaching namba notesla skitch panadhu indha mari try pani realistic pakum bodhu konjam different ha nala iruku anna
 hi anna iniki cls nala ifundhuchi anna namab own creation la ideas lam nambakuku pidicha mari comfortable ha vrike mudiyudhu anna thnk u for teaching
 iniki cls nala irundhuchi anna samaya pochi anna ellame oru alavuku kathukitom nu ninaikuren anna thnks anna for reaching 
+hi anna iniki cls konjam interested ha irundhuchi anna neraiye kathukitom anna v  r getting somewhere closer anna sry anna for sterday absent nijama mudila anna adhunala dhn anna cls agten oanela unga kitta solavum mudila anna sry anna
