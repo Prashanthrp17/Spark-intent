@@ -7,3 +7,4 @@ hi anna iniki cls nala ifundhuchi anna namab own creation la ideas lam nambakuku
 iniki cls nala irundhuchi anna samaya pochi anna ellame oru alavuku kathukitom nu ninaikuren anna thnks anna for reaching 
 hi anna iniki cls konjam interested ha irundhuchi anna neraiye kathukitom anna v  r getting somewhere closer anna sry anna for sterday absent nijama mudila anna adhunala dhn anna cls agten oanela unga kitta solavum mudila anna sry anna
 hi anna friday cls la namba what's app andha mari apps la inner la hkme page lam evalo detailed ha irukunu payhom anna every smalls things epadi pani irukanga evalo allignment careful ha pathu pani irukanga nu pathom anna thnks for tht teachjng anna
+hi anna iniki kishore anna pane andha editing la inum neraiye rnnalam pananum nu detail ha soniga anna then epadi lam irukanum evalo clr ha andha gaps la soniga anna adhu usefull ha irindhuchi anna thnks for teaching anna 
